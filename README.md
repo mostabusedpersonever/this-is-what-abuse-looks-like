@@ -78,7 +78,19 @@ If you notice any of these signs. Contact me. Just create an issue or whatever a
 - You got to shops, especially the women refuse to look at you, serve you, treat you like a god damn normal human being. Why fire them, right?
 - Constant random assaults and abuse, especially by women: random coughing at you, sneezing at you, you sit down, the women sit elsewhere, you look a them, they either look away or look at you in disgust
 
+# Conclusion
+
+- NEVER be kind to anyone. NEVER. Especially not to women. NEVER.
+- I was kind. I never got anything in return. I had 2% SMV. I never had one girlfriend or proper date, will never have kids or family. Now I'm too old for everything.
+- What did my parents and sister do? Simply disappear. See? true love.
+- I helped the secreto agents Mossad, NSA, CIA and others. What did I get? Constant break ins and they ruined my life even further.
+- I am supposedly a "great leader" and "one in a kind super rare genius". Did anyone ever listen to my advice? No. There you go. If you are kind. Care for yourself and others. Work on yourself. Your life gets fucked up. NEVER. BE. KIND. TO ANYONE. NEVER.
+- If anyone so much as tries to abuse you, instant retaliation.
+- There is no law. You can do in this world, especially Switerland, what you want. The doctors abuse you. The ambulance abuses you. HR abuses you. Everyone abuses you. Abuse back. Do whatever you want. Anarchy? It is already anarchy. If someone so much at looks at you in public, do whatever to retaliate.
+
 So as a response to this you can do:
 - Contact me
 - Go to the police (forget about it, there is no law)
 - Or you contact me and we devise a plan for retaliation so your abusers will be terrorized daily for the rest of their lives
+
+If you want, we can build a team of anti-abusers to abuse the abusers. But properly this time. I am still alive, you know. They didn't do it good enough.
